@@ -1,4 +1,4 @@
-here are some of my teaching materials/handouts/scribbles yay :D
+here are some of my teaching materials/handouts/scribbles yay :D   
 (handouts = typed notes for class; scribbles = handwritten scribbles while teaching)
 
 other materials from pintarian mathletes can be found [here](https://drive.google.com/drive/u/1/folders/1zFDUdLMDfkt6iOhdiN9P_U5JkcLxe69f)
